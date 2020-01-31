@@ -1,0 +1,1 @@
+# Inazuma-Eleven-GO-Strikers-2013-English-Translation-Project-Files
